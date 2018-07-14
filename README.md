@@ -1,2 +1,0 @@
-# banquyen
-Copyright-Startinhit
